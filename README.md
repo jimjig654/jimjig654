@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm @jimjig654
+# 👋 Hey there, I'm GOTHBOYYYY :3
 
 Welcome to my little slice of the internet.
 
